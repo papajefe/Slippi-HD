@@ -32,7 +32,7 @@ https://www.reddit.com/r/SSBM/comments/ct7t6g/melee_hd_texture_pack_version_2_re
 
 Smash Bros Melee HD Remix
 
-https://www.reddit.com/r/smashbros/comments/7j7agn/the_melee_hd_remix_texture_pack_is_out/
+https://sdremix.games/download/download-hd-remix/
 
 Melee Dolphin HD 3x AI Upscale
 
